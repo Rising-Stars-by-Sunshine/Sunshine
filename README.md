@@ -1,2 +1,2 @@
 # Sunshine
-The Webpage for Luyao (Sunshine) Zhang
+The Webpage for [Luyao (Sunshine) Zhang](https://scholars.duke.edu/person/luyao.zhang)
